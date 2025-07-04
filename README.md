@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Haywhyprime
 - 👀 I’m interested in learning,relearning and advancing my knowledge 
-- 🌱 I’m currently learning the web 3 space,a budding data analyst
-- 💞️ I’m looking to collaborate on projects, and other ...
+- 🌱 web 3 enthusiast,a budding data analyst
+- 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me bexhaywhy77@gmail.com
 - ⚡ Fun fact: 
 

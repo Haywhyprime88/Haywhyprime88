@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning,relearning and afvancing my knowledge 
 - 🌱 I’m currently learning the web 3 space,and oll like to venture into other things 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me forcruise99@gmail.com
+- 📫 How to reach me bexhaywhy77@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 

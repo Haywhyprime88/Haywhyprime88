@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @Haywhyprime88
-- 👀 I’m interested in learning,relearning and afvancing my knowledge 
-- 🌱 I’m currently learning the web 3 space,and oll like to venture into other things 
-- 💞️ I’m looking to collaborate on ...
+- 👋 Hi, I’m @Haywhyprime
+- 👀 I’m interested in learning,relearning and advancing my knowledge 
+- 🌱 I’m currently learning the web 3 space,a budding data analyst
+- 💞️ I’m looking to collaborate on projects, and other ...
 - 📫 How to reach me bexhaywhy77@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
 <!---
